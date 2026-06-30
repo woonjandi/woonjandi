@@ -1,6 +1,6 @@
 
-⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀![](https://komarev.com/ghpvc/?username=woonjandi&color=FF5FA7&label=🏠︎+˚⊹)⠀ ⠀𖡻⠀ ⠀𝟘𝟞𝟘𝟟𝟘.. ⠀ ⠀𝄢 </p>
-
-⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀. cᰔ / imseu⠀  ![](https://github.com/woonjandi/woonjandi/blob/e09395923cc24cda9a6ee8b90a00fd4273d67da7/tumblr_8eaf5d06e6070475e1e7de2819e5a517_b95c308c_75.webp)ഒ ⠀  [新book](https://keonhyeon.atabook.org/)
+⠀⠀⠀⠀⠀⠀⠀⠀⠀
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀    [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31zs3fo3vnstjiclosschadrs6ia&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=C69BB7)](https://spotify-github-profile.kittinanx.com/api/view?uid=312qdjtb6l6q3slrgfp6wxyktfzi&redirect=true)
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
 
 
